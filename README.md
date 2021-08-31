@@ -1,3 +1,1 @@
 # Spareribs
-
-# Yo Denley
